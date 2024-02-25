@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently enrolled in **Bachelor of Computer Science (Bioinformatics) with Honours**
 
-- 🏆 Here is my certificates and awards [https://drive.google.com/file/d/1W711iR7_0zb1MKUICerhsABakaZQDDDR/view?usp=drivesdk](https://drive.google.com/file/d/1W711iR7_0zb1MKUICerhsABakaZQDDDR/view?usp=drivesdk)
+- 🏆 Here is my certificates and awards [https://drive.google.com/file/d/1W711iR7_0zb1MKUICerhsABakaZQDDDR/view?usp=drivesdk](https://drive.google.com/drive/folders/1FeXwPKBXU4GeS-_HMkFoC_XWIhZkP6R5?usp=drive_link)]
 
 - 📫 How to reach me **fadlinafina@graduate.utm.my**
 
